@@ -36,7 +36,7 @@
 
 
 #### A funny story
-  When I was in college, I went out to party with some of my friends. I was drunk as skunk that night. And later after the party, we went out to roam around the city though we barely could stand still. The following morning when I woke up whole my body was in pain, as if somebody I was beaten till I cry :smile: &nbsp; . I called one of my friends who were with me last night as I had no idea what I had done. I came to know that I did some HIT workouts. I did 60 push ups, tried one hand push up and even hung upon a branch of tree to try pull ups, which I don't even try when I am sober. I did not beleive him until I saw the video of me doing such stupidity. 
+  When I was in college, I went out to party with some of my friends. I was drunk as skunk that night. And later after the party, we went out to roam around the city though we barely could stand still. The following morning when I woke up whole my body was in pain, as if I was beaten to death :smile: &nbsp; . I called one of my friends who were with me last night as I had no idea what I had done. Only then, I came to know that I did some HIT workouts :grinning: &nbsp; . I had done 60 push ups, tried one hand push up and even hung upon a branch of tree to try pull ups, which I don't even try when I am sober. I did not beleive him until I saw the video of me doing such stupidity. 
 
 
 ##### TLDR

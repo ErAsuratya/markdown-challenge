@@ -40,7 +40,7 @@
 
 
 ##### TLDR
-  You posses some kind of super power when you are drunk.
+  I posses super powers when I am drunk.
 
 
 << [Mattias](https://github.com/WiseCoding/markdown-challenge/blob/master/README.md) || [Mausam](https://github.com/ErAsuratya/markdown-challenge/blob/master/README.md) || [Miroslav](https://github.com/miroslavveljanoski/markdown-challenge/blob/master/README.md) >>
